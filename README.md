@@ -1,1 +1,1 @@
-![image](https://github.com/sidjha57/resume/assets/62923020/28b60253-55fc-46d6-930c-70b36909e754)
+<img width="597" alt="Image" src="https://github.com/user-attachments/assets/489cddaa-d6c5-4f52-bbe1-b5b5b50ad66c" />
